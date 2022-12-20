@@ -1,1 +1,0 @@
-# tal-uma-m-quina-de-computa-o-robusta
